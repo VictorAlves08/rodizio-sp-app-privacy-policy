@@ -1,1 +1,0 @@
-# rodizio-sp-app-privacy-policy
